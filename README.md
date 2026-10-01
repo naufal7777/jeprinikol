@@ -1,4 +1,2 @@
 # jeprinikol
-aku suka makan nasi padang
-
-acumalaka
+aku suka makan nas
