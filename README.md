@@ -1,3 +1,2 @@
 # jeprinikol
-aku suka makan nasi padang
-ppppppppppppp
+aku suka makan nas
